@@ -1,1 +1,1 @@
-# Mini-kalpana
+# Mini-sutra
